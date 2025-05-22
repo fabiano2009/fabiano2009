@@ -1,4 +1,4 @@
-🌱 I’m currently learning
+"Trust in God and He will never leave you" 
 
 <!--
 **fabiano2009/fabiano2009** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
